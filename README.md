@@ -1,16 +1,14 @@
-## Hi there 👋
+## Hello everyone!
 
-<!--
-**vrtmrz/vrtmrz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am Vorotamoroz, a believer in progress and harmony for mankind. (You know, this is the theme of EXPO '70).
 
-Here are some ideas to get you started:
+May the world be improved with all our hands!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I will write my social networking account here where I will announce various things.
+
+## Excuses
+You may have noticed a decline in the frequency of my updates. This, I regret to inform, is due to a spot of misfortune that has befallen my dear loved familiy.
+
+However, you need not fret! I have lost neither my passion nor my resolve. Though my responses may be fragmented for a time, rest assured, I shall make a full return.
+
+Updates would be done properly!
