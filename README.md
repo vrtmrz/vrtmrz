@@ -3,7 +3,8 @@
 I am Vorotamoroz, a believer in progress and harmony for mankind. (You know, this is the theme of EXPO '70).
 May the world be improved with all our hands!
 
-I will write my social networking account here where I will announce various things.
+Some of non-trivial informations will be posted in here: https://mozilla.social/@vrtmrz  
+Also, I might post also some miscellaneous 'busy' reason reports here.
 
 ## Excuses
 You may have noticed a decline in the frequency of my updates. This, I regret to inform, is due to a spot of misfortune that has befallen my dear loved family.  
