@@ -7,6 +7,6 @@ Some of non-trivial informations will be posted in here: https://mozilla.social/
 Also, I might post also some miscellaneous 'busy' reason reports here.
 
 ## Excuses
-You may have noticed a decline in the frequency of my updates. This, I regret to inform, is due to a spot of misfortune that has befallen my dear loved family.  
-However, you need not fret! I have lost neither my passion nor my resolve. Though my responses may be fragmented for a time, rest assured, I shall make a full return.  
-Updates would be done properly!
+Regrettably, I must inform you that our beloved mother has passed away. I trust that this sentiment will resonate: I have not lost my passion nor my resolve. 
+
+I shall uphold our obligations with the utmost gratitude and respect and return shortly.
